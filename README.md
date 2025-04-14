@@ -1,12 +1,12 @@
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=cxstiiel&color=blue&style=plasic&label=𓆩♡𓆪">
+  <img src="https://komarev.com/ghpvc/?username=cxstiiel&color=green&style=plasic&label=𓆩♡𓆪">
 
 <p align="center">
-  matching profiles with @yaoikat ˚ʚ♡ɞ˚
+  why dont you show me a little bit of spine ˚ʚ♡ɞ˚
 </p>
 
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/830820664457035829/1357449780552536094/Untitled37_20250315101748.png?ex=67fcc55f&is=67fb73df&hm=27a0cb81d04862d0ef6414f912461be38dcd30887a444b325f0dc9f5c0bf6065&=&format=webp&quality=lossless&width=780&height=780" width="400">
+  <img src="https://media.discordapp.net/attachments/830820664457035829/1361367991467381010/tumblr_1461cb03137d77dee9d83029ae0d84d2_17886d49_1280-removebg-preview.png?ex=67fe803e&is=67fd2ebe&hm=b7b94fc7ed348cec97c218f95b926c8779071cfb197ba7119fd26eff071a0319&=&format=webp&quality=lossless" width="200">
 </p>
 
 <p align="center">
